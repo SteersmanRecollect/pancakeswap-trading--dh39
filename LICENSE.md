@@ -1,4 +1,4 @@
-# 
+# Get the ultimate pancakeswap trading bot with new pancakeswap trading bot Plugin | yield-farming + multi-chain-support. Featuring yield-farming and multi-chain-support, it's the
 
 
 
